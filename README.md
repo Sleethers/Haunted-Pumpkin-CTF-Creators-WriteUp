@@ -1,1 +1,0 @@
-# Haunted-Pumpkin-CTF-Creators-WriteUp
